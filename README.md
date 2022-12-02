@@ -11,7 +11,7 @@ Revisado por Anna Sabater
 Video explicativo Taha Skaf
 Enlace del video explicativo: https://drive.google.com/file/d/10msUQnLJFsmLLIeNIDsqlWFPvPoLVNnW/view?usp=sharing
 
-# V5 (25/11/22)
+# V5 (2/12/22)
 Generado por Taha Skaf
 Revisado por Alex Sells
 Video explicativo Anna Sabater
