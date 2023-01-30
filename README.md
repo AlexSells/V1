@@ -22,6 +22,6 @@ Generado por Alex Sells
 Revisado por Anna Sabater
 Video explicativo Taha Skaf
 Esta version esta en processo
-Link al video explicativo:
+Link al video explicativo: https://drive.google.com/file/d/1q92HN6A1zzV2IEniFCgnPt_hPE3Yhu6b/view?usp=sharing
 
 (Se ha saltado un turno debido a problemas con la conexion con shiva y shiva2)
