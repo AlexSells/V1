@@ -16,3 +16,12 @@ Generado por Taha Skaf
 Revisado por Alex Sells
 Video explicativo Anna Sabater
 Enlace del video explicativo:https://drive.google.com/file/d/1rTixmhIxq6BALR12LsVAKmBXmZEddolF/view?usp=sharing
+
+#Version final
+Generado por Alex Sells
+Revisado por Anna Sabater
+Video explicativo Taha Skaf
+Esta version esta en processo
+Link al video explicativo:
+
+(Se ha saltado un turno debido a problemas con la conexion con shiva y shiva2)
